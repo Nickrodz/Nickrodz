@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nickrodz
-- 👀 I’m interested in Game Designing
+- 👀 I’m interested in Game Designing/Software Engineering
 - 🌱 I’m currently learning STUFF ABOUT CODE :D
 - 📫 How to reach me nickrodz277@gmail.com
 
